@@ -68,5 +68,6 @@
 
 ---
 
-![Задание 4]![2025-04-09_16-53-44](https://github.com/user-attachments/assets/7eebcc3d-48c0-4f10-ae45-09edba583ccc)
+![Задание 4]!![photo_2025-04-09_17-24-26](https://github.com/user-attachments/assets/e80fc5d2-9dd8-4035-a993-1fb1dc2f2ac5)
+
 
