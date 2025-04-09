@@ -51,7 +51,8 @@
 
 ---
 
-![Задание 2-3]
+![Задание 2-3]![photo_2025-04-09_17-09-40](https://github.com/user-attachments/assets/0c84700f-06b1-4b4f-9714-be41f879082d)
+
 ---
 
 ### Задание 4
@@ -67,4 +68,5 @@
 
 ---
 
-![Задание 4]
+![Задание 4]![2025-04-09_16-53-44](https://github.com/user-attachments/assets/7eebcc3d-48c0-4f10-ae45-09edba583ccc)
+
