@@ -90,7 +90,8 @@
 
 ---
 
-![Задание 2-3]![photo_2025-04-09_17-09-40](https://github.com/user-attachments/assets/0c84700f-06b1-4b4f-9714-be41f879082d)
+![Задание 2-3]!![2025-04-15_16-35-32](https://github.com/user-attachments/assets/65771332-9614-46c8-aecf-00676646c66b)
+
 
 ---
 
