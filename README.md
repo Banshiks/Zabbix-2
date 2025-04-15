@@ -53,7 +53,8 @@
 
  ---
 
- ![Задание 1]!![2025-04-15_16-15-24](https://github.com/user-attachments/assets/53973217-4474-480a-8e00-aa41e1bfbe6b)
+ ![Задание 1]!!![2025-04-15_16-27-18](https://github.com/user-attachments/assets/eb27fc5d-5231-4b9f-809c-d689049e6154)
+
 
 
 
